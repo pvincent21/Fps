@@ -10,4 +10,4 @@ install package in (cmd):
 
 
 Output:
-https://screenrec.com/share/hiNuKvDEke
+[https://screenrec.com/share/hiNuKvDEke](https://youtube.com/shorts/wTJomBxM3PM?si=vG6kcQS76zcQRs3l)
